@@ -1,4 +1,4 @@
-### Hi there, I'm Xavier Boakye 👋
+### Hi there, I'm Xavier 👋
 
 #### Glad to see you here!
 
